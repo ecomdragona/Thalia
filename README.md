@@ -1,0 +1,2 @@
+# Thalia
+Shopify Plus Expert
